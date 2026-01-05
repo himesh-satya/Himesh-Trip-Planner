@@ -1,1 +1,4 @@
 # Himesh-Trip-Planner
+
+HEY PEOPLE,
+MAKE YOUR TRIP BETTER
